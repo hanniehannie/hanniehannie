@@ -1,8 +1,7 @@
 @hann
 
+![表情包 _ 好可爱的chiikawa (1)](https://github.com/user-attachments/assets/7ab03f2d-b73c-4f87-9923-06ff5a5b35bb)
 
-
-![Uploading 表情包 _ 好可爱的chiikawa (1).gif…]()
 
 
 ***minor ✦ skz stan ✦ drama watcher*** 

@@ -1,4 +1,5 @@
-![表情包 _ 好可爱的chiikawa](https://github.com/user-attachments/assets/0b79d0d9-108c-47c8-86bf-ec0c359f819c)
+
+![表情包 _ 好可爱的chiikawa](https://github.com/user-attachments/assets/7f4e7b37-e606-4e09-87b8-dae5d4a543da)
 
 ***minor ✦ skz stan ✦ drama watcher*** *int freely , STRICTLY DNC. NOR TAKE INSPO , c + h , no dni list*
 

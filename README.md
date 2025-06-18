@@ -1,5 +1,6 @@
 
-![表情包 _ 好可爱的chiikawa (1)](https://github.com/user-attachments/assets/8a49476a-e8ba-4477-8559-d790ca16713a)
+![表情包 _ 好可爱的chiikawa (1)](https://github.com/user-attachments/assets/10254ede-4b81-48b0-816f-3a44c33e4a60)
+
 
 ***minor ✦ skz stan ✦ drama watcher*** 
 

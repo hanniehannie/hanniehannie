@@ -1,7 +1,7 @@
 @hann
 
-![表情包 _ 好可爱的chiikawa (1)](https://github.com/user-attachments/assets/f6ec92ec-c878-4598-a869-e3cf5e11fc34)
 
+![表情包 _ 好可爱的chiikawa (3)](https://github.com/user-attachments/assets/d011d878-6ce5-477f-99a9-a4e15f85892b)
 
 
 

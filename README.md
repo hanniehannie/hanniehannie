@@ -1,8 +1,4 @@
-@hann
-
-
-![表情包 _ 好可爱的chiikawa (3)](https://github.com/user-attachments/assets/d011d878-6ce5-477f-99a9-a4e15f85892b)
-
+![表情包 _ 好可爱的chiikawa (1)](https://github.com/user-attachments/assets/970276cd-e039-499e-9efb-fcba7aa179aa)
 
 
 

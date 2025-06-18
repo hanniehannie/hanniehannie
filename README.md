@@ -1,5 +1,6 @@
 
-![表情包 _ 好可爱的chiikawa (1)](https://github.com/user-attachments/assets/10254ede-4b81-48b0-816f-3a44c33e4a60)
+
+![表情包 _ 好可爱的chiikawa (2)](https://github.com/user-attachments/assets/9be4ca93-d0e6-460e-995a-e89c7034e262)
 
 
 

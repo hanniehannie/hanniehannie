@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=hanniehannie&color=fbc3b0) this many after a DAY?? too bad my 1 follower will make me loose my aura, HIDING IT THEN! PRSHH BOWW SKRRTTT
+![](https://komarev.com/ghpvc/?username=hanniehannie&color=fbc3b0) i put my private follower off only so i could match pls don't bully me for my 1 follower
 
 ![表情包 _ 好可爱的chiikawa (1)](https://github.com/user-attachments/assets/250a7b84-0843-49d2-a3c8-9ac732dab20d)
 

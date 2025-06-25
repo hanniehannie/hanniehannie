@@ -5,5 +5,6 @@
 ***minor ✦ skz stan ✦ drama watcher*** 
 
 *int freely , STRICTLY DNC. NOR TAKE INSPO , c + h , no dni list*
+**https://hanniehannie.carrd.co/** < **https://hanniehannie.straw.page/** < **https://en.pronouns.page/@hanniehannie**
 
 *my name is ACTUALLY Hann , not just because 'i like skz' brah, i love asher with my pure heart*

@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=hanniehannie&color=fbc3b0) wooo???
+![](https://komarev.com/ghpvc/?username=hanniehannie&color=fbc3b0) ay i got fans
 ![表情包 _ 好可爱的chiikawa (1)](https://github.com/user-attachments/assets/250a7b84-0843-49d2-a3c8-9ac732dab20d)
 
 ***minor ✦ skz stan ✦ drama watcher*** 
@@ -7,3 +7,5 @@
 
 
 *codemeister9000. i am. cody anderson.*
+
+you're a douchbag!

@@ -7,6 +7,5 @@
                                               int freely , STRICTLY DNC. NOR TAKE INSPO , c + h , no dni list
 
 
-*codemeister9000. i am. cody anderson.*
 
 disc. > holdingbriefly

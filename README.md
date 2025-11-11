@@ -8,4 +8,4 @@
 
 *codemeister9000. i am. cody anderson.*
 
-you're a douchbag!
+disc. > holdingbriefly
